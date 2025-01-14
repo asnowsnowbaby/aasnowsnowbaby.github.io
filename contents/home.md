@@ -2,7 +2,7 @@
 
 
 
-#### A university BOY.We will make it more convenient. 
+A university BOY.We will make it more convenient. 
 
 
 #### Research Interests
